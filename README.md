@@ -1,2 +1,2 @@
-# CollaborativeProjectsX.github.io
+# Collaborative Projects X
 Overview
